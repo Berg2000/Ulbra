@@ -1,3 +1,2 @@
 # Ulbra
 
-#tu e gay
